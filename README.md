@@ -1,4 +1,4 @@
-# 👋 Erika Abedejos
+# 👋 Hey there, I'm Erika Abedejos
 
 **`Student | Software Developer | UI/UX Designer`**
 
